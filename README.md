@@ -1,1 +1,3 @@
-zvibecodowane oczywiście bo mi się nie chciało :p
+coś tam zrobiłem
+nwm
+za dużo czasu nad tym spędziłem
